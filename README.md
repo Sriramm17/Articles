@@ -1,5 +1,4 @@
-# Gre Prep
-When I was mugging up words for preparation of GRE, I clustered words with similar meanings and It really helped. Here, are the clusters I made: 
+# Gre Prep vocabulary
 
 ### To make angry:
 | Word          | Meaning       |
