@@ -1,4 +1,4 @@
-# Gre Prep Vocabulary
+# GRE Prep Vocabulary
 
 ### To make angry:
 | Word          | Meaning       |
